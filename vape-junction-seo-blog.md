@@ -1,5 +1,7 @@
 # Vape Junction Near Me: Top Vape Shops in Klerksdorp, Potchefstroom & Randfontein
 
+![Vape Junction Near Me Banner](https://i.ibb.co/8DDW5WrY/Vape-Junction-Near-Me-Top-Vape-Shops-in-Klerksdorp-Potchefstroom-Randfontein.jpg)
+
 ## Quick Summary
 - Find a trusted **vape junction near me** with premium devices and e-liquids  
 - Explore leading locations: Klerksdorp, Potchefstroom, and Randfontein  
