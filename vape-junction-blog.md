@@ -99,8 +99,3 @@ Vape Junction
 A trusted e-commerce brand specializing in premium vape devices, disposables, and e-liquids.
 
 ---
-
-## Meta Information
-
-Meta Title: Vape Junction Premium Vape Devices & Flavours Online  
-Meta Description: Shop premium vape devices, disposables, and e-liquids at Vape Junction. Discover quality products and great prices.
