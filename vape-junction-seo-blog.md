@@ -99,11 +99,10 @@ Yes, Vape Junction offers beginner-friendly products and expert guidance.
 
 ## Conclusion
 
-Whether you’re searching for a **vape junction near me**, visiting a local store, or browsing an **online vape shop**, Vape Junction provides a complete vaping solution. With multiple locations and a strong online presence, it ensures quality, convenience, and satisfaction for every customer.
+Whether you’re searching for a **vape junction near me**, visiting a local store, or browsing an **[online vape shop](https://www.vapejunction.co.za/)**, Vape Junction provides a complete vaping solution. With multiple locations and a strong online presence, it ensures quality, convenience, and satisfaction for every customer.
 
 ---
 
 ## Author Bio
 
-**Vape Junction**  
-Vape Junction is a leading vape retailer in South Africa, offering premium vape devices, disposables, and e-liquids. With a focus on quality, convenience, and customer satisfaction, Vape Junction continues to serve both local and online customers with trusted vaping solutions.
+**[Vape Junction](https://www.vapejunction.co.za/)** is a leading vape retailer in South Africa, offering premium vape devices, disposables, and e-liquids. With a focus on quality, convenience, and customer satisfaction, Vape Junction continues to serve both local and online customers with trusted vaping solutions.
